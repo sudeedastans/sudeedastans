@@ -163,8 +163,8 @@ I particularly enjoy projects where I can combine:
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: [Add your LinkedIn URL]
-- 📧 Email: [Your email]
+- 💼 LinkedIn: www.linkedin.com/in/sudenaz-dastan
+- 📧 Email: sudeedastans@gmail.com
 - 📍 Nottingham, United Kingdom
 
 ---
